@@ -1,6 +1,6 @@
 # How to rotate laptop screen dell ?
 
-[![How to rotate laptop screen dell](pink.png)](https://github.com/bitwarsoft/how.to.rotate.laptop.screen.dell)
+[![How to rotate laptop screen dell](pink.png)](https://icncomputer.com/how-to-rotate-screen-on-dell-laptop/)
 
 Would you like to know How to Rotate Screen on Dell Laptop as well? A computer is complex and has several features you probably won’t use. On Dell and other companies laptops, you can flip the laptop picture so that it is on the bottom up or sideways.
 
